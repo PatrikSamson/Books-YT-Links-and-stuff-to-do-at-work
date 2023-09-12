@@ -3,3 +3,6 @@ this is a repository where I'll upload stuff i want to watch or read at work. al
 
 
 https://youtu.be/wjWOy6ioVHI?si=srxiEeZ1LsNx0jsG - VaatiVidya - Bloodborne Story Explained
+
+
+https://youtu.be/pOjafEURaeI?si=SfelejdUkb86WsQ5 - breaking bad color theory
