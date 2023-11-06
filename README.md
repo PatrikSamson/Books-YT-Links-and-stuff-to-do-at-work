@@ -6,3 +6,7 @@ https://youtu.be/wjWOy6ioVHI?si=srxiEeZ1LsNx0jsG - VaatiVidya - Bloodborne Story
 
 
 https://youtu.be/pOjafEURaeI?si=SfelejdUkb86WsQ5 - breaking bad color theory
+
+https://youtu.be/z0MyTsHJ82U?si=bYf0s6sEXl1EiDo_
+
+https://youtu.be/s60y_LjkC3U?si=xO_c1DF6s5GQil2y
