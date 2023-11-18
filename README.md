@@ -1,4 +1,4 @@
-se# Books-YT-Links-and-stuff-to-do-at-work
+I'llse# Books-YT-Links-and-stuff-to-do-at-work
 this is a repository where I'll upload stuff i want to watch or read at work. all links are used with YT converter
 
 
@@ -18,3 +18,5 @@ https://youtu.be/pKH8GGV0zP0?si=OJ0XBZUU-fcuQNxg
 https://youtu.be/EN6xKGnrGYw?si=huXpCZmitSdjkpnZ
 
 https://youtu.be/PBlXF9WMko0?si=zEav9VwDSI7IUwTo
+
+https://youtu.be/wfU3Nm5ri8o?si=FGwlxLdRvkxitZvx
