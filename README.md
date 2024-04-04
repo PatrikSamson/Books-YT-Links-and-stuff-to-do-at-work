@@ -9,4 +9,8 @@ https://art.ontariobsd.net/
 
 https://real.edu.sardar.org/
 
+https://greatestaxeofflox.thelmadejager.co.za/
+
+https://x.a.ubiq.org/1
+
 https://drive.google.com/file/d/1OsebFKzTpF2uiXSmF1LoCUDKMYJ0zTuK/view?usp=drive_link
